@@ -10,6 +10,7 @@ im slowly forgeting your  f4ce .
 
         
 <img width="745" height="60" alt="IMG-1071" src="https://github.com/user-attachments/assets/a4c6b36f-9754-4f57-9763-50cd62ffcee8" />  
- </p>
- <p align="center">
+ [ATABOOK](https://apolurez.atabook.org/) 
+    
+   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=503062&width=435&lines=bassie+is+my+wife+!;I+love+my+friends+in+pt!;I+farted+!)](https://git.io/typing-svg)
  
