@@ -1,2 +1,2 @@
 
-remaking my readme !! ccu z it sucks ass
+changing readme AGAIN. SORRRY LOL
