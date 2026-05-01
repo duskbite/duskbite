@@ -7,14 +7,13 @@
 <img width="1280" height="720" alt="happy!!!!!!!!" src="https://github.com/user-attachments/assets/b7fa1823-48ed-47e2-9428-66d7d0ad6195" />
 <div align="center">
   
-  [rentry](https://rentry.co/saywallahibrosaywallahi) . [atabook](https://apolurez.atabook.org) . [prns.cc](https://pronouns.cc/therealsquIddo)
+  [rentry](https://rentry.co/saywallahibrosaywallahi) . [atabook](https://apolurez.atabook.org) . [prns.cc](https://pronouns.cc/therealsquIddo) . [pin](https://ph.pinterest.com/squevilll/) 
   
 </div>
 
 <p align =center>
 insta # duskbitee
-
-
+my pin is newly made ok.. thats why it has no followers
 
 
 
