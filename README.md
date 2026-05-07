@@ -3,20 +3,19 @@
 
 
 
-<p align=center>
-<img width="1280" height="720" alt="happy!!!!!!!!" src="https://github.com/user-attachments/assets/b7fa1823-48ed-47e2-9428-66d7d0ad6195" />
-<div align="center">
-  <img width="2048" height="82" alt="d" src="https://github.com/user-attachments/assets/669a39af-2942-491d-b0a8-4ca3d7dbf649" />
+<p align=left>
+<img width="500" height="300" alt="happy!!!!!!!!" src="https://github.com/user-attachments/assets/b7fa1823-48ed-47e2-9428-66d7d0ad6195" />
+<div align="right">
+  <img width="600" height="50" alt="d" src="https://github.com/user-attachments/assets/669a39af-2942-491d-b0a8-4ca3d7dbf649" />
 
 
 
-$$\color{#FFC178}{\text{ fleur      /        vanny      /       miyuu }}$$
-$$\color{#EA8F46}{\text{ mostly offtab so w2i   *  unless with friends }}$$ 
-$$\color{#AA2200}{\text{ dnc      ,         i have issues so iwecare pls.   }}$$
+                              $$\color{#FFC178}{\text{ fleur      /        vanny      /       miyuu }}$$                  
+                   $$\color{#EA8F46}{\text{ mostly offtab so w2i   *  unless with friends }}$$      $$\color{#AA2200}{\text{ dnc      ,         i have issues so iwecare pls. }}$$
 
+</div>
 
-
-<p align=center>
+<p align=left>
 <details>
   <summary>copycat alert..</summary>
                            hey guys, ive removed the screenshots, i still dont appreciate celine for copying my squiddo but im over it now. do not harass her!!i never meant for her friends to like unfriend her.
@@ -24,7 +23,7 @@ $$\color{#AA2200}{\text{ dnc      ,         i have issues so
                          i may forgive celine, just dont do the same mistake again.
                                       i also did NOT try and be the "victim".
 </details>
-<p align=center>
+<p align=left>
 <details>
    <summary>wall of shame</summary>
 02:20 PM[Colbalt💥| Forsaken DNI] whispers: you are cringe and you suck                              
@@ -47,7 +46,7 @@ OK buddy LOL juts hide me or whatever ^_^
      
 </details>
 
-<img width="2048" height="82" alt="b" src="https://github.com/user-attachments/assets/828c9e65-60a4-4f7a-8311-4d0f279dd886" />
+<img width="600" height="50" alt="b" src="https://github.com/user-attachments/assets/828c9e65-60a4-4f7a-8311-4d0f279dd886" />
 
 
 
@@ -79,10 +78,7 @@ OK buddy LOL juts hide me or whatever ^_^
 
          
 
-         
 
-
- 
 
 <div align=center>
   
