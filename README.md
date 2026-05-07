@@ -24,8 +24,6 @@ $$\color{#AA2200}{\text{ dnc      ,         i have issues so
                          i may forgive celine, just dont do the same mistake again.
                                       i also did NOT try and be the "victim".
 </details>
-
-     
 <p align=center>
 <details>
    <summary>wall of shame</summary>
