@@ -2,9 +2,19 @@
   
  [rentry](https://rentry.co/saywallahibrosaywallahi)     ଳ     [atabook](https://apolurez.atabook.org)        ۶ৎ        [prns.cc](https://pronouns.cc/therealsquIddo)        ଳ        [pin](https://ph.pinterest.com/squevilll/)        ۶ৎ        [insta](https://www.instagram.com/duskbitee/)
 </div>
+                                                                                                                                                                                                                                                                                        
 
 
 
 
-[![clickme](https://i.pinimg.com/736x/cb/1d/87/cb1d87e4793328e3ba388e17e31e0b3e.jpg)](https://ph.pinterest.com/skipthetutoriaI/_created/)                                            
-MY README will be like this until i get a phone 
+
+
+
+<img width="2048" height="2048" alt="coold" src="https://github.com/user-attachments/assets/d9bdd1ab-b1d2-40cb-9c36-9e0efe8e0d8c" />
+
+
+
+                                      
+MY README will be like this until i get a phone                                                                       
+creds : @ spyglassloser on tumblr 
+
