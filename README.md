@@ -10,7 +10,7 @@
 
 
 
-<img width="2048" height="2048" alt="coold" src="https://github.com/user-attachments/assets/d9bdd1ab-b1d2-40cb-9c36-9e0efe8e0d8c" />
+<img width="1048" height="1048" alt="coold" src="https://github.com/user-attachments/assets/d9bdd1ab-b1d2-40cb-9c36-9e0efe8e0d8c" />
 
 
 
