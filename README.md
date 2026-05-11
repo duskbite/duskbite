@@ -12,7 +12,7 @@
 
 <a href="https://theredmeansiloveyou.atabook.org/">send a message</a>
 &nbsp;&nbsp;
-<a href="https://rentry.co/saywalahibrosaywalahi/">rentry</a>
+<a href="https://rentry.co/saywallahibrosaywallahi">rentry</a>
 &nbsp;&nbsp;
 <a href="https://pronouns.cc/therealsquIddo/">prns</a>
 &nbsp;&nbsp;
