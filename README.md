@@ -28,7 +28,7 @@
 
 <br><br>
 other accounts uwu # 
-<a href="https://github.com/SQUEVIL/">spamalt</a>
+<a href="https://github.com/SQUEVIL/">spam alt</a>
 &nbsp;&nbsp;
 <a href="https://github.com/happyyuri/">alt2</a>
 &nbsp;&nbsp;
