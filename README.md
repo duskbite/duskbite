@@ -34,6 +34,8 @@
 &nbsp;&nbsp;
 <a href="https://instagram.com/duskbitee/">insta</a>
 &nbsp;&nbsp;
+          dc is .szheii
+          tiktok is ssunweaver
 </p>
 </details>
 <details>
