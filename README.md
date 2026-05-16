@@ -9,7 +9,7 @@
 <p align=center>
 <a href="https://hits.sh/GitHub.com/ssunweaver/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/ssunweaver/hits.svg?label=sunshines&extraCount=95921&color=ffd1df&labelColor=ffff&logo=2k"/></a>
 <p align=center>
-<b>fleur</b> <img width="20" height="20" alt="oki dokdi" src="https://github.com/user-attachments/assets/9e29437e-5b9f-449c-9a42-03067342f444" /> <i>or</i> vanny !
+<b>fleur</b> <img width="20" height="20" alt="oki dokdi" src="https://github.com/user-attachments/assets/9e29437e-5b9f-449c-9a42-03067342f444" /> <i>or</i> miuu !
 ㅤ
 ㅤㅤㅤ
 ㅤㅤㅤ
