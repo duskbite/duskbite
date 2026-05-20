@@ -1,13 +1,14 @@
 
 <p align=center>
-<img width="2048" height="1447" alt="tumblr_466158d33a0c36959eea64a13c77222e_9f9bf485_2048" src="https://github.com/user-attachments/assets/ffe0c575-211f-49af-a165-607b3cb2deb0" />
-creds: @ bananana2217 on tumblr
+<img width="735" height="489" alt="soriyah (@sorizzyah07) on X" src="https://github.com/user-attachments/assets/93bb502a-9895-42e9-9e83-a56a6b67022e" />
+
+creds: soriyah (@sorizzyah07) on X
 </p>
         
 
 
 <p align=center>
-<a href="https://hits.sh/GitHub.com/ssunweaver/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/ssunweaver/hits.svg?label=sunshines&extraCount=95921&color=ffe135&labelColor=ffff&logo=2k"/></a>
+<a href="https://hits.sh/GitHub.com/ssunweaver/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/ssunweaver/hits.svg?label=sunshines&extraCount=95921&color=dfc5fe&labelColor=ffff&logo=2k"/></a>
 <p align=center>
 <b>fleur</b> <i>or</i> miuu !
 ㅤ
